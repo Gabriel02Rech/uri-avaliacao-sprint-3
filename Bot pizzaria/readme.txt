@@ -1,0 +1,1 @@
+Link do bot: https://gabriel-petry-rech-sjp1v.chat.blip.ai/?appKey=cGl6emFyaWE0MDphNDdiNWE0ZS0yMDFmLTQwZGEtYTI0OS01OTU5MWUxYWVmNTU=
